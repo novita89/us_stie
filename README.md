@@ -1,2 +1,2 @@
 # Undangan Seminar STIE Pontianak
-Undangan Seminar STIE Pontianak
+Contact Person: Novita Sari
