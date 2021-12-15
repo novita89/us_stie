@@ -1,2 +1,2 @@
-# us_stie
+# Undangan Seminar STIE Pontianak
 Undangan Seminar STIE Pontianak
